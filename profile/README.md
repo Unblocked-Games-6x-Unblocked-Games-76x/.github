@@ -4,7 +4,7 @@ Are you looking for a fun yet **educational simulation game** to play at school?
 
 With access to platforms like **Unblocked Games 76, Classroom 6x, Classroom 15x, Classroom 20x, and Classroom 30x**, players can enjoy **Classroom Management Unblocked** at school without restrictions.  
 
-## [https://classroom-6x-cool.gitlab.io/](https://classroom-6x-cool.gitlab.io/)
+## [Unblocked Game](https://izigames.net/)
 ---
 
 ## **What is Classroom Management Unblocked Game 76?**  
